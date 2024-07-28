@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Perfume
 - 📫 How to reach me elitak10@gmail.com
 - 😄 Pronouns: elitak
-- ⚡ Fun fact: I am Lady 
+- ⚡ Fun fact: I am a Lady 
 
 <!---
 ElitaKa/ElitaKa is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
