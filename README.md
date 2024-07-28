@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ElitaKa
-- 👀 I’m interested in fashion
+- 👀 I’m interested in Fashion
 - 🌱 I’m currently learning new skills for a job
 - 💞️ I’m looking to collaborate on Perfume
 - 📫 How to reach me elitak10@gmail.com
